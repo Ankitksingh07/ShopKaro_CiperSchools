@@ -1,0 +1,1 @@
+# ShopKaro_CiperSchools
